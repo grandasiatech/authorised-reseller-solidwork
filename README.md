@@ -52,5 +52,3 @@ Ada beberapa alasan mengapa Grand Asia Tech adalah pilihan tepat untuk solusi de
 Grand Asia Tech hadir untuk membawa perusahaan Anda ke level berikutnya dalam hal desain digital. Dengan sistem CAD 3D SolidWorks, dukungan teknis lokal yang andal, serta layanan pelatihan dan orientasi yang komprehensif, kami memastikan bahwa perusahaan Anda memiliki semua yang dibutuhkan untuk sukses dalam desain. Kami berkomitmen untuk membantu Anda meningkatkan proses desain dan produktivitas dengan teknologi terbaik.
 
 Jadi, jika Anda mencari solusi desain digital yang efisien, inovatif, dan dapat diandalkan, Grand Asia Tech adalah mitra yang tepat. Wujudkan desain Anda dengan teknologi terbaik bersama kami hari ini!
-
-Untuk informasi lebih lanjut, kunjungi www.grandasia.tech.
