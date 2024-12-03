@@ -1,0 +1,1 @@
+# authorised-reseller-solidwork
